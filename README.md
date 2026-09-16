@@ -18,7 +18,7 @@ at [CO3 offspace](https://co3art.com/exhibitions-events/kamalanetra/), Cologne, 
 
 Memory is not just something we store; it is something we perform, invent, and
 transform. This exhibition invites you to explore how personal and collective
-memories—especially those shaped by trauma and resilience—can become
+memories, especially those shaped by trauma and resilience; can become
 playful, imaginative, and healing. These works use video game aesthetics,
 installations, zines, and interactive stories to invite movement, imagination, and
 new ways of remembering.
@@ -27,17 +27,17 @@ new ways of remembering.
 
 We do not only remember individually; we remember together. As Aleida and
 Jan Assmann suggest, memories live within cultures, passed through rituals,
-stories, and symbols. Here, remembering is not about storing the past—it is
+stories, and symbols. Here, remembering is not about storing the past. It is
 about inventing new possibilities.
 
 These works turn difficult memories into spaces for compassion, play, and
 reflection. A past that was painful can be transformed, allowing us to honor our
 younger selves and approach the present with curiosity and confidence. What
 happens when guilt and fear, past and future, dance together? Perhaps we find
-self-compassion—and the confidence to move freely in the present.
+self-compassion and the confidence to move freely in the present.
 
 Video games and interactive installations become tools of “performative
-memory”—spaces where movement, imagination, and participation reshape our
+memory” spaces where movement, imagination, and participation reshape our
 experience of the self. Through play, we remember that we are not limited by
 past trauma: we are spirit, we are resilient, we are free to move in new ways.
 
