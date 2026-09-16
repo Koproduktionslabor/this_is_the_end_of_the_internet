@@ -32,9 +32,10 @@ about inventing new possibilities.
 
 These works turn difficult memories into spaces for compassion, play, and
 reflection. A past that was painful can be transformed, allowing us to honor our
-younger selves and approach the present with curiosity and confidence. What
-happens when guilt and fear, past and future, dance together? Perhaps we find
-self-compassion and the confidence to move freely in the present.
+younger selves and approach the present with curiosity and confidence. 
+
+**What happens when guilt and fear, past and future, dance together? Perhaps we find
+self-compassion and the confidence to move freely in the present.**
 
 Video games and interactive installations become tools of “performative
 memory” spaces where movement, imagination, and participation reshape our
